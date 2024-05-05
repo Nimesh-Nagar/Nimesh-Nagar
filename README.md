@@ -1,4 +1,4 @@
-# 💫 About Nimesh Nagar:
+# 💫 About Me:
 Passionate IoT developer eager to explore and embrace new technologies. <br>Always excited to learn and grow in the ever-evolving tech landscape.<br><br>💬 Ask me about IoT<br><br><br>
 
 
